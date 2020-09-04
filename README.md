@@ -1,1 +1,1 @@
-# DUMMY TEXT
+Makhambet Berikov 190107040
